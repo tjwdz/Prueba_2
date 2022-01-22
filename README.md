@@ -2,3 +2,4 @@
 Myïtukpat 
 ### Nëky  
 ## ayuujk jää'y ja nyëky
+**may tsyëkyïyë**
